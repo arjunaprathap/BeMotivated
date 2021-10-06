@@ -1,2 +1,2 @@
-"Be the reason for someone's smile"
-Life will reward you
+"If you want to be strong,
+ learn how to fight alone"
