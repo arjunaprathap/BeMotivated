@@ -52,7 +52,7 @@ stay positive.”
 Ellen DeGeneres
 “If opportunity doesn’t knock, build a door.”
 
-
+"You only live once, but if you do it right, once is enough." — Mae West.
 
 
 >>>
